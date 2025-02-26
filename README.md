@@ -6,7 +6,7 @@ Currently, I'm expanding my knowledge by delving deeper into advanced machine le
 
 I'm actively seeking opportunities to collaborate on impactful AI projects that challenge the status quo and push the boundaries of what's possible. Whether it's developing intelligent systems, creating innovative solutions, or exploring emerging technologies, I'm eager to work with like-minded individuals who share a passion for harnessing AI's transformative potential.
 
-You can reach out to me via email at [your_email@example.com]. I'm open to discussing potential collaborations, sharing insights, or simply connecting with fellow enthusiasts.
+You can reach out to me via email at khizarshaikh909@gmail.com. I'm open to discussing potential collaborations, sharing insights, or simply connecting with fellow enthusiasts.
 
 😄 Pronouns: He/Him
 ⚡ Fun fact: I'm fluent in multiple languages and enjoy experimenting with diverse cuisines in my spare time.
